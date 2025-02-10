@@ -1,1 +1,2 @@
-# BOOTCAMPREVIEW
+I am glad and grateful to take this step in my career, it has not been easy and it will definitely not be easy moving from being a business administration graduate without no prior knowledge about software developing but I am willing and ready to give my all to ensure I make maximum use of this 5 month experience and also develop myself more in the tech world. 
+If I am to share my thoughts concerning the bootcamp, I would suggest special preference or training sshould be given to students like me who have no knowledge about the coursebor better still, the duration can be much longer to ensure 100% groomimg and all. But, overall it has been a nice experience and kudos to GoMyCode.  
